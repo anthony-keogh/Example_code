@@ -1,4 +1,4 @@
-Picture of files
+Picture of file structure
 
 Link below
 
